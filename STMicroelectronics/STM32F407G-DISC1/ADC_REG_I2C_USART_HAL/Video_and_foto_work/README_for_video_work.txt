@@ -1,0 +1,1 @@
+https://disk.yandex.ru/i/FHKxs-W1ndHyIg
